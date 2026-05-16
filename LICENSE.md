@@ -1,4 +1,4 @@
-# 
+# professional Atom for PC | Atom for Windows Integration | keyboard-shortcuts + code-folding is the best Atom for PC | Atom for Windows integration, featuring keyboard-shortcuts
 
 
 
